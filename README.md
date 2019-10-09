@@ -1,1 +1,1 @@
-# Prog
+# Prog programowanie itd
